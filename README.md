@@ -1,0 +1,1 @@
+# ashi0067.github.io
